@@ -1,0 +1,5 @@
+- Playing guitar  
+- rock climbing
+- backcountry skiing
+- collecting records
+- studying the stock market
